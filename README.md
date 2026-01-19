@@ -1,16 +1,15 @@
-## Hi there 👋
+> ###### " This is how ~~dangerous~~ incredibly healthy parasocial relationships can form.
+>
+> ###### Philza does love you. He can love you. Philza KNOWS you. He can appreciate you AND he can fucking love you. "
 
-<!--
-**ph1lz4/ph1lz4** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+__________________________________________________________________________________________________________________________________
+<br>
+<br>
+hello , i am shostar anon , i have an unhealthy obsession with philza minecraft
 
-Here are some ideas to get you started:
+my pronouns are they/it/he
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+check out my strawpage --> [here](https://ph1lzadaddy.straw.page/ "and send me a message?")
+
+
+
