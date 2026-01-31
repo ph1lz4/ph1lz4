@@ -9,7 +9,5 @@ hello , i am shostar anon , i have an unhealthy obsession with philza minecraft
 
 my pronouns are they/it/he
 
-check out my strawpage --> [here](https://ph1lzadaddy.straw.page/ "and send me a message?")
-
 
 
