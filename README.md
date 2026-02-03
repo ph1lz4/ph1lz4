@@ -6,8 +6,10 @@ ________________________________________________________________________________
 <br>
 <br>
 hello , i am shostar anon , i have an unhealthy obsession with philza minecraft
+feel free to c+h, int or whatever i am mostly silent on ponytown
+if you are a philza cosplayer i will wisp you if i see you
 
-my pronouns are they/it/he
+check out my strawpage --> [here](https://ph1lzadaddy.straw.page/ "and send me a message?")
 
-
+fair warning for the strawpage it is slightly nsfw (no nsfw images just weird in general) if you want to send me hatemail for it idc tell me what you think about me
 
