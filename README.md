@@ -10,8 +10,8 @@ hello , i am shostar anon / phil , i have an unhealthy obsession with philza min
 anyone and everyone is free to c+h and int with me, as i dont really speak on ponytown
 
 check out my strawpage --> [here](https://ph1lzadaddy.straw.page/ "and send me a message?")
+fair warning for the strawpage it is slightly nsfw (no nsfw images, but suggestive themes, weird and parasocial in general)
 
-fair warning for the strawpage it is slightly nsfw (no nsfw images just weird and parasocial in general)
-
-if you want to send me hatemail for it idc tell me what you think about me
+if you'd like to know more about me , read my carrd --> [here](https://ph1lzadaddy.carrd.co/)
+it is styled after wikipedia and features only One image
 
