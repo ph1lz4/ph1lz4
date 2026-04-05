@@ -15,3 +15,4 @@ fair warning for the strawpage it is slightly nsfw (no nsfw images, but suggesti
 if you'd like to know more about me , read my carrd --> [here](https://ph1lzadaddy.carrd.co/)
 it is styled after wikipedia and features only One image
 
+![visitor badge](https://visitor-badge.laobi.icu/badge?page_id=ph1lz4.ph1lz4&left_color=green&right_color=black&left_text=visitors)
