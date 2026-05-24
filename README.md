@@ -15,10 +15,11 @@ anyone and everyone is welcome to c+h please i'll actually DIE please c+h me if 
 
 other than philza minecraft i also enjoy rick and morty, solar opposites, and inside job
 
-check out my strawpage --> [here](https://ph1lzadaddy.straw.page/ "and send me a message?")
+MY LINKS :
+
+--> [**strawpage**](https://ph1lzadaddy.straw.page/ "my philza shrine!") / [**carrd**](https://ph1lzadaddy.carrd.co/ "based off wikipedia...") / [**atabook**](https://ph1lz4.atabook.org/ "sign my ata?")
+
 fair warning for the strawpage it is slightly nsfw <br>
 (no nsfw images, but suggestive themes, weird and parasocial in general)
-
-if you'd like to know more about me , read my carrd --> [here](https://ph1lzadaddy.carrd.co/)
 
 ![visitor badge](https://visitor-badge.laobi.icu/badge?page_id=ph1lz4.ph1lz4&left_color=green&right_color=black&left_text=visitors)
