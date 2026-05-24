@@ -11,7 +11,7 @@ ________________________________________________________________________________
 
 hello , i am prince / phil / shostar , i have an unhealthy obsession with philza minecraft
 
-anyone and everyone is welcome to c+h and interact with me at all times
+anyone and everyone is welcome to c+h please i'll actually DIE please c+h me if i'm ever online
 
 other than philza minecraft i also enjoy rick and morty, solar opposites, and inside job
 
