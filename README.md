@@ -4,9 +4,10 @@
 
 __________________________________________________________________________________________________________________________________
 <br>
-<br>
 
-[![Untitled-design(15).png](https://i.postimg.cc/V6d266QY/Untitled-design(15).png)](https://postimg.cc/ygCLp785)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=52g6ya2avnvu5g1t22ow3wks1&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=52g6ya2avnvu5g1t22ow3wks1&redirect=true)
+
+[![Untitled-design(15).png](https://i.postimg.cc/QdDvG0Wg/Untitled-design(15).png)](https://postimg.cc/pp0sKQCy)
 
 hello , i am prince / phil / shostar , i have an unhealthy obsession with philza minecraft
 
@@ -21,5 +22,3 @@ fair warning for the strawpage it is slightly nsfw <br>
 if you'd like to know more about me , read my carrd --> [here](https://ph1lzadaddy.carrd.co/)
 
 ![visitor badge](https://visitor-badge.laobi.icu/badge?page_id=ph1lz4.ph1lz4&left_color=green&right_color=black&left_text=visitors)
-
-[![spotify-github-profile](https://spotify-github-profile.ph1lz4.com/api/view?uid=52g6ya2avnvu5g1t22ow3wks1&cover_image=true&theme=natemo-re&show_offline=true&background_color=121212&interchange=false&bar_color=3DA32F&bar_color_cover=false)](https://spotify-github-profile.ph1lz4.com/api/view?uid=52g6ya2avnvu5g1t22ow3wks1&redirect=true)
